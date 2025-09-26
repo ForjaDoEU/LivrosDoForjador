@@ -36,3 +36,6 @@ O fio condutor é a busca por entender como o **Verbo** — a palavra, a ação,
 ## ✍️ Sobre o Autor  
 **Forjador** é um escritor independente que trabalha com a linguagem como um ferreiro trabalha com o metal:  
 aquecendo, moldando e dando forma a conceitos pesados e ideias afiadas na bigorna do pensamento.
+Quanto ao nome... ele espera por uma afirmação. Até lá, a certas portas, a sentença ecoa: "Em verdade vos digo que não vos conheço!" (Mateus 25:12).
+
+No fim, sou apenas um homem comum com ideias comuns, forjando palavras na quietude.
